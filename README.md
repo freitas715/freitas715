@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @freitas715
 - 👀 I’m interested in aprender mais em programacao
-- 🌱 I’m currently learning a criar progamas e analisar 
+- 🌱 I’m currently learning a aprendendo a criar sites
 - 💞️ I’m looking to collaborate on em empresas que dem oportunidade
 - 📫 How to reach me 27996306792
 - 😄 Pronouns: freitas
